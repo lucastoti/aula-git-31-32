@@ -1,2 +1,2 @@
 # turma31-32
-dia 7 de Junho
+dia 7 de Junho de 2023
